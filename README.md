@@ -1,0 +1,1 @@
+# Minecraft resource pack
